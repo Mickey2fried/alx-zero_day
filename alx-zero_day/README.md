@@ -1,1 +1,0 @@
-#### Nelson Mandela is a great president

@@ -1,1 +1,0 @@
-### Ghana is rich with cocoa
